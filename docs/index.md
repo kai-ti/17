@@ -1,3 +1,3 @@
-## Katy's portfolio 
+## coming soon, have a great day for now! ;)
 
 
